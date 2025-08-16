@@ -18,3 +18,5 @@ Creo que el aprendizaje y el título que me va a dar la Tecnicatura Universitari
 - Hagan actividad física, escuchen a su cuerpo.
 - Acá van a tener un compañero responsable, firme y con ganas de colaborar para la ocasión que se presente.
 
+  Les deseo el mayor de los éxitos en esta cursada.
+
